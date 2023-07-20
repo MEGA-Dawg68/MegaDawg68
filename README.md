@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MegaDawg68
+- I am a linux enthusiast
+- I am in the proccess of making my own linux distribution
+- https://www.youtube.com/@TheRandomTechChannel
+- email is on the channel 😁😁😁😁
